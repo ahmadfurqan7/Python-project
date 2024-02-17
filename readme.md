@@ -1,3 +1,3 @@
 PYTHON PROJECTS 🐍
 ====================================================
-* THANKS FROR VISIT :) *
+* THANKS FOR VISIT :) *
